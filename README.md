@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Devaraj-Kudumula
 - 👀 I’m interested in GenAI and NLP
-- 📫 How to reach me  gmail: devaraj.kudumula143@gmail.com
-- Linkedin:linkedin.com/in/devaraj-kudumula-7b39541a0
+- 📫 reach me out through  gmail: devaa.kudumula@gmail.com
+- Linkedin: linkedin.com/in/devaraj-kudumula-7b39541a0
